@@ -147,7 +147,7 @@ We may update this Privacy Policy from time to time. Updates will be posted with
 
 If you have any questions regarding this Privacy Policy, please contact us:
 
-**:** UJGLOBAL
+**:** SULTAN KHAN
 
 **Email:** [info@ujglobal.tech](mailto:info@ujglobal.tech)
 

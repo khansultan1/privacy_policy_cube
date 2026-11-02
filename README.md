@@ -147,7 +147,7 @@ We may update this Privacy Policy from time to time. Updates will be posted with
 
 If you have any questions regarding this Privacy Policy, please contact us:
 
-**Company:** UJGLOBAL TECH OPC PRIVATE LIMITED
+**:** UJGLOBAL
 
 **Email:** [info@ujglobal.tech](mailto:info@ujglobal.tech)
 
